@@ -1,7 +1,7 @@
 # Mahdi Alsaied
 **Software Engineer & IT Systems Lead** · Jeddah, Saudi Arabia
 
-📧 mras86@gmail.com · 📱 +966 59 696 6610 · 🔗 [LinkedIn](https://linkedin.com/in/mahdi-alsaied-30659665)
+📧 mras86@gmail.com · 🔗 [LinkedIn](https://linkedin.com/in/mahdi-alsaied-30659665)
 
 ---
 
