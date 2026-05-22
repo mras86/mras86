@@ -2,7 +2,7 @@
 
 **Software Engineer & IT Operations Lead** · Jeddah, Saudi Arabia
 
-📧 mras86@gmail.com · [LinkedIn](https://linkedin.com/in/mahdi-alsaied-30659665)
+📧 mras86@gmail.com · [LinkedIn](https://linkedin.com/in/mahdi-a-30659665)
 
 ---
 
@@ -62,4 +62,4 @@ A modular, scalable system architected for a manufacturing factory environment. 
 
 ---
 
-> 💼 [View my full CV on LinkedIn](https://linkedin.com/in/mahdi-alsaied-30659665)
+> 💼 [View my full CV on LinkedIn](https://linkedin.com/in/mahdi-a-30659665)
