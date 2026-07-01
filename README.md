@@ -2,7 +2,7 @@
 
 **Software Engineer & IT Operations Lead** · Jeddah, Saudi Arabia
 
-📧 mras86@gmail.com · [LinkedIn](https://linkedin.com/in/mahdi-a-30659665)
+📧 mahdi.r.alsaied@gmail.com · [LinkedIn](https://linkedin.com/in/mahdi-a-30659665)
 
 ---
 
